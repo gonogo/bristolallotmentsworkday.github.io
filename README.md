@@ -1,4 +1,3 @@
-# test
 ## 🌱 Allotment Action Day: Help Bring Plots Back Into Use 🌱  
 **A community “blitz” to reclaim neglected allotments in Bristol**
 
@@ -33,9 +32,9 @@ Tasks will be organised into small groups, with experienced people on hand to gu
 ---
 
 ### When & where
-- 📅 **Date:** *[Insert date]*  
-- ⏰ **Time:** *[e.g. 10am–4pm, or morning/afternoon session]*  
-- 📍 **Location:** *[Allotment site name & area]*  
+- 📅 **Date:** *Saturday 7 March 2026*  
+- ⏰ **Time:** *All day from 10am*  
+- 📍 **Location:** *Ashley Vale Allotments* | [Map](https://maps.app.goo.gl/xfm3Q55WQ4taKHKg7) | What3Words: [seats weedy drops](https://what3words.com/seats.weedy.drops)  
 
 You’re welcome to stay all day or help for a few hours — it all counts.
 
@@ -44,16 +43,15 @@ You’re welcome to stay all day or help for a few hours — it all counts.
 ### What to bring
 - Clothes you don’t mind getting dirty  
 - Sturdy footwear  
-- Gloves if you have them (some will be available)  
+- Gloves if you have them (some will be available)
+- Bring a couple of litres of water to drink
 
 Tools, task briefings, safety guidance, and coordination will be provided.
 
 ---
 
 ### And yes… there will be food 🍰
-- 🥪 **Lunch will be provided**  
-- ☕🍰 **Tea, coffee, and cake in the afternoon**  
-  *(because community work days should always end well)*
+- ☕🍰 **Tea, coffee, and CAKE breaks throughout the day**  
 
 ---
 
@@ -70,9 +68,11 @@ If the pilot works, it could become a model for other sites across Bristol.
 ---
 
 ### Interested?
-Just turn up on the day, or get in touch to find out more:
+If you'd like to take part, *[sign up here](https://docs.google.com/forms/d/e/1FAIpQLSfxrunNSXsa-Va7RX_MWITZkdhcRGjxLi2CJD_NhFeRW-KPlA/viewform?usp=publish-editor)*:
 
-- 📧 *[Contact email]*  
-- 📞 *[Contact number]*  
+### Any questions?
+If you have any questions or queries, please email Chris Neale (one of the site reps at Ashley Vale) at [chris.ashley.vale.allotment@gmail.com](mailto:chris.ashley.vale.allotment@gmail.com).
+
+---
 
 Bring a friend, bring your energy, and help us give these allotments a fresh start 🌼
