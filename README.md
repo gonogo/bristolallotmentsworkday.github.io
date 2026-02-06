@@ -34,17 +34,19 @@ Tasks will be organised into small groups, with experienced people on hand to gu
 ### When & where
 - 📅 **Date:** *Saturday 7 March 2026*  
 - ⏰ **Time:** *All day from 10am*  
-- 📍 **Location:** *Ashley Vale Allotments* | [Map](https://maps.app.goo.gl/xfm3Q55WQ4taKHKg7) | What3Words: [seats weedy drops](https://what3words.com/seats.weedy.drops)  
+- 📍 **Location:** *Ashley Vale Allotments* -- [Map](https://maps.app.goo.gl/xfm3Q55WQ4taKHKg7) -- What3Words: [seats weedy drops](https://what3words.com/seats.weedy.drops)  
 
 You’re welcome to stay all day or help for a few hours — it all counts.
 
 ---
 
 ### What to bring
-- Clothes you don’t mind getting dirty  
-- Sturdy footwear  
-- Gloves if you have them (some will be available)
+- Clothes you don’t mind getting dirty
+- Some warmth layers in case it's cold
+- Heavy duty boots or shoes with good grip 
+- Thick gardening gloves or gauntlets
 - Bring a couple of litres of water to drink
+- Waterproofs
 
 Tools, task briefings, safety guidance, and coordination will be provided.
 
