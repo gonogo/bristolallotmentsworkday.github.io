@@ -1,31 +1,30 @@
 ## 🌱 Allotment Action Day: Help Bring Plots Back Into Use 🌱  
 **A community “blitz” to reclaim neglected allotments in Bristol**
 
-Bristol has long waiting lists for allotments — yet many plots on existing sites are sitting unused. We’re trying a **new, practical approach**: bringing people together for a focused, well-organised volunteer work day to clear neglected plots and get them ready for new growers this season.
+Bristol has long waiting lists for allotments — yet many plots on existing sites are sitting unused. We’re trying a **new, practical approach**: bringing people together for a focused, volunteer work day to clear neglected plots and get them ready for new growers this season.
 
-This is a **pilot project**, working with Bristol City Council and local allotment representatives, and your help will directly shape how this could be rolled out across the city.
+This is a **pilot project**, working with Bristol City Council and local allotment representatives, and your help will directly shape how this could be rolled out to other sites across Bristol.
 
 ---
 
 ### What’s the plan?
-We’re running a **one-day (or half-day) clearing blitz** on a single allotment site with lots of unused plots. By working together — quickly and positively — we aim to:
+We’re running a **one-day (or half-day) clearing blitz** at the Ashley Vale Allotments site which has a number of overgrown and disused plots. By working together quickly and with some positive energy we aim to:
 
-- Clear overgrown vegetation  
+- Clear up overgrown vegetation and build some dead-hedges
 - Remove rubbish and debris  
 - Mark out plots ready to be re-let  
-- Create a real sense of momentum and shared achievement  
+- Create a real sense of momentum and shared achievement
 
 Doing this all at once makes a huge difference: new plots appear together, new tenants start together, and the whole site benefits from the buzz.
 
 ---
 
 ### Who can take part?
-You don’t need to be a gardener or allotment holder.  
+You don’t need to be an experienced gardener or an allotment holder.
 We’re looking for:
 
-- People who enjoy practical outdoor work  
-- Those on allotment waiting lists who want to get involved  
-- Community-minded volunteers happy to muck in and help others  
+- People who enjoy practical outdoor work
+- Community-minded volunteers happy to muck in and help others
 
 Tasks will be organised into small groups, with experienced people on hand to guide where needed. No one will be left wondering what to do.
 
@@ -45,8 +44,8 @@ You’re welcome to stay all day or help for a few hours — it all counts.
 - Some warmth layers in case it's cold
 - Heavy duty boots or shoes with good grip 
 - Thick gardening gloves or gauntlets
-- Bring a couple of litres of water to drink
-- Waterproofs
+- Bring a bottle of water and a cup for tea
+- Waterproofs!
 
 Tools, task briefings, safety guidance, and coordination will be provided.
 
