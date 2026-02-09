@@ -8,7 +8,7 @@ This is a **pilot project**, working with Bristol City Council and local allotme
 ---
 
 ### What’s the plan?
-We’re running a **one-day (or half-day) clearing blitz** at the Ashley Vale Allotments site which has a number of overgrown and disused plots. By working together quickly and with some positive energy we aim to:
+We’re running a **one-day clearing blitz** at the Ashley Vale Allotments site on 7 March 2026. The site has has a number of overgrown and disused plots, and by working together quickly and with some positive energy we aim to:
 
 - Clear up overgrown vegetation and build some dead-hedges
 - Remove rubbish and debris  
