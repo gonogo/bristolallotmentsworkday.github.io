@@ -44,7 +44,7 @@ You’re welcome to stay all day or help for a few hours — it all counts.
 - Some warmth layers in case it's cold
 - Heavy duty boots or shoes with good grip 
 - Thick gardening gloves or gauntlets
-- Bring a bottle of water and a cup for tea
+- A bottle of water
 - Waterproofs!
 
 Tools, task briefings, safety guidance, and coordination will be provided.
