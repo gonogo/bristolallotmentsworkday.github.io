@@ -69,7 +69,7 @@ If the pilot works, it could become a model for other sites across Bristol.
 ---
 
 ### Interested?
-If you'd like to take part, *[sign up here](https://docs.google.com/forms/d/e/1FAIpQLSfxrunNSXsa-Va7RX_MWITZkdhcRGjxLi2CJD_NhFeRW-KPlA/viewform?usp=publish-editor)*:
+If you'd like to take part, *[complete the form to register your interest here](https://docs.google.com/forms/d/e/1FAIpQLSfxrunNSXsa-Va7RX_MWITZkdhcRGjxLi2CJD_NhFeRW-KPlA/viewform?usp=publish-editor)*:
 
 ### Any questions?
 If you have any questions or queries, please email Chris Neale (one of the site reps at Ashley Vale) at [chris.ashley.vale.allotment@gmail.com](mailto:chris.ashley.vale.allotment@gmail.com).
